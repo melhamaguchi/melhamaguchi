@@ -10,4 +10,4 @@
 * 🐻 Cal Class of 20' Go Bears!
 * 🧐 I’m interested in 
   * 🗺️ Language Learning 
-  * 🪡 Sewing
+  * 👗 Sewing
